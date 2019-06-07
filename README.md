@@ -1,0 +1,1 @@
+# Hatena_Design_Hour_7_Note
